@@ -1,0 +1,2 @@
+# Tradu-o
+tradução monikAI
